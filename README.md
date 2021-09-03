@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Polishboy420
+- 👀 I’m interested in poop
+- 🌱 I’m currently learning how to poop
+- 💞️ I’m looking to collaborate on collective pooping
+- 📫 Reach me on the toilet
